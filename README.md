@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently a Student
 
-- 📫 How to reach me **Monstaraks@gmail.com**
+- 📫 How to reach me **Regiisvenatus@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
